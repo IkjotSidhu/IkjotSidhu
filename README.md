@@ -1,6 +1,6 @@
 ## Hi there 👋
 
-# 💫 About Me:
+# 😎 About Me:
 Bioinformatician👨🏽‍💻 at Icahn School of Medicine 💊🥼🧬 at Mount Sinai ⛰️, NYC🗽<br>
 
 
